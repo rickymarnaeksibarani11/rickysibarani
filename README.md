@@ -1,0 +1,2 @@
+# rickysibarani
+repository pemula lah
